@@ -1,0 +1,1 @@
+# vp-photography-edms-image-public
